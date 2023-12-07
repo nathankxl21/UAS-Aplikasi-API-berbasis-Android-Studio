@@ -12,4 +12,8 @@ Elia Kinarya Mawikere 210211060091
 
 Nathasya Imanuela Mongkau 210211060242  
 
+
+LINK VIDEO DEMO
+https://youtu.be/3Mj7wgSfuuc
+
   
